@@ -30,7 +30,8 @@ ${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf
 <details>
   <summary> ⠀  ${\textsf{\color{#BCB880}𝔈𝔵𝔱𝔢𝔫𝔡𝔢𝔡}}$ </summary> 
   
-  [𝔄𝓽𝓪](https://bloodbathed.atabook.org) ${\textsf{\color{#B09E71}𝓪𝓷𝓭}}$‎  [𝕴𝔫𝔣𝔬](https://rentry.co/centopia)
+  [𝔄𝓽𝓪](https://bloodbathed.atabook.org)  [𝕴𝔫𝔣𝔬](https://rentry.co/centopia)
+  [𝕻𝔯𝔫𝔠𝔰.𝕮𝔠](https://pronouns.cc/@xbri.)
   
 </details>
 <br>
