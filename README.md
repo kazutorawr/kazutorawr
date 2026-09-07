@@ -32,6 +32,7 @@ ${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf
   
   [𝔄𝓽𝓪](https://bloodbathed.atabook.org)  [𝕴𝔫𝔣𝔬](https://rentry.co/centopia)
   [𝕻𝔯𝔫𝔠𝔰.𝕮𝔠](https://pronouns.cc/@xbri.)
+  [𝕾𝓉𝓇𝒶𝓌𝓅𝒶ℊℯ](https://kazutorawr.straw.page.)
   
 </details>
 <br>
