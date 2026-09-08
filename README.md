@@ -53,35 +53,4 @@ and [Kem](https://github.com/k3m-kem)
 
   <img width="735" height="501" alt="11386" src="https://github.com/user-attachments/assets/d33486c2-9f65-45fb-b7f6-ebe4475801eb" />
 
-     <br>
- ‎  ‎ ‎  ‎   ‎ <details>
-  <summary> ⠀  ${\textsf{\color{#703E5B}𝔇𝔢𝔞𝔯𝔢𝔰𝔱𝔰}}$ </summary> 
-  
-  [𝔖𝔞𝔪𝔲𝔢𝔩](https://github.com/nnagito) [𝔇𝔬𝔯𝔦𝔞𝔫](https://github.com/lierzxkichi)
-  [𝔎𝔢𝔪](https://github.com/k3m-kem) 
-  
-</details>
-<details>
-  <summary> ⠀  ${\textsf{\color{#BCB880}𝔈𝔵𝔱𝔢𝔫𝔡𝔢𝔡}}$ </summary> 
-  
-  [𝔄𝓽𝓪](https://bloodbathed.atabook.org)  [𝕴𝔫𝔣𝔬](https://rentry.co/centopia)
-  [𝕻𝔯𝔫𝔠𝔰.𝕮𝔠](https://pronouns.cc/@xbri.)
-  [𝕾𝓉𝓇𝒶𝓌𝓅𝒶ℊℯ](https://kazutorawr.straw.page.)
-  
-</details>
-<details>
-  <summary> ⠀  ${\textsf{\color{#BCB880}𝕻𝕿 𝕽𝖊𝖜𝖆𝖗𝖉𝖘}}$ </summary> 
-  
-  [1](https://github.com/pt-icon)  [2](https://github.com/Ponytowns-rewards)
-
-</details>
-<br>
-
-</td>
-</tr>
-</table>
-</p>
-  <p  align="center">
- <img  width="550px" src="https://file.garden/ahJ9psks00S0XEb8/Untitled203_20260830151630.png" />
-
-
+     
