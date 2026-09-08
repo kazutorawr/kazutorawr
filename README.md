@@ -38,7 +38,7 @@ ${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf
 <details>
   <summary> ⠀  ${\textsf{\color{#BCB880}𝕻𝕿 𝕽𝖊𝖜𝖆𝖗𝖉𝖘}}$ </summary> 
   
-  [1](https://github.com/pt-icon)  [2](https://github.com/ponytowns-awards)
+  [1](https://github.com/pt-icon)  [2](https://github.com/Ponytowns-rewards)
 
 </details>
 <br>
