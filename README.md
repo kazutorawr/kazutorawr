@@ -35,6 +35,12 @@ ${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf
   [𝕾𝓉𝓇𝒶𝓌𝓅𝒶ℊℯ](https://kazutorawr.straw.page.)
   
 </details>
+<details>
+  <summary> ⠀  ${\textsf{\color{#BCB880}𝕻𝕿 𝕽𝖊𝖜𝖆𝖗𝖉𝖘}}$ </summary> 
+  
+  [1](https://github.com/pt-icon)  [2](https://github.com/ponytowns-awards)
+
+</details>
 <br>
 
 </td>
