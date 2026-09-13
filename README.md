@@ -32,7 +32,7 @@ href="https://pronouns.cc/xbri."><img src="https://github.com/user-attachments/a
 
 <div align="center">
 
-<img width="576" height="83" alt="https://github.com/user-attachments/assets/afcf87c5-af33-42ea-b61e-895c404fafe5" />
+<img src="https://github.com/user-attachments/assets/2179c57e-1dea-425e-9954-ea3a0289ff46" alt="imgkaz" width="100%"/>  
 
 <img src="https://github.com/user-attachments/assets/c1caeefd-be06-4e01-9f36-ede884ddd6ea" alt="imgkaz" width="100%"/>     <br>
 
