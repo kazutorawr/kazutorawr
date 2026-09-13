@@ -6,8 +6,8 @@
   <table border="0">
     <tr/>
       <td align="center" align="middle" width="32%">
-        <img src="https://github.com/user-attachments/assets/86c5b3d4-4da8-44aa-9076-1c92931cdefd" alt="imgkaz" width="60%"/>
-        <img src="https://github.com/user-attachments/assets/a9a9ab3f-c0d0-4627-bf0f-4cef321cf314" alt="imgkaz" width="80%"/>
+        <img src="https://github.com/user-attachments/assets/f3ca176d-5568-4f8d-8fff-81e82b14c68d" alt="imgkaz" width="60%"/>
+        <img src="https://github.com/user-attachments/assets/1041673f-6ef0-45d9-9e81-8670b660db16" alt="imgkaz" width="80%"/>
       </td>
       <td align="center" valign="middle" width="10%">
         <a 
@@ -32,7 +32,7 @@ href="https://pronouns.cc/xbri."><img src="https://github.com/user-attachments/a
 
 <div align="center">
 
-<img width="576" height="83" alt="11582" src="https://github.com/user-attachments/assets/afc6a0a1-29c9-4c15-b6dd-f0debe61aeea" />
+<img width="576" height="83" alt="https://github.com/user-attachments/assets/32990d50-a234-4989-94bf-d9ebdc8b43c8" />
 
 <img src="https://github.com/user-attachments/assets/c1caeefd-be06-4e01-9f36-ede884ddd6ea" alt="imgkaz" width="100%"/>     <br>
 
@@ -52,5 +52,3 @@ and [Kem](https://github.com/k3m-kem)
   [1](https://github.com/pt-icon)  [2](https://github.com/Ponytowns-rewards)
 
   <img width="735" height="501" alt="11386" src="https://github.com/user-attachments/assets/d33486c2-9f65-45fb-b7f6-ebe4475801eb" />
-
-     
