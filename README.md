@@ -7,7 +7,10 @@
     <tr/>
       <td align="center" align="middle" width="32%">
         <img src="https://github.com/user-attachments/assets/f3ca176d-5568-4f8d-8fff-81e82b14c68d" alt="imgkaz" width="60%"/>
-        <img src="https://github.com/user-attachments/assets/1041673f-6ef0-45d9-9e81-8670b660db16" alt="imgkaz" width="80%"/>
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Betania+Patmos&size=20&duration=1555&pause=1000&color=BCB880&width=435&lines="Did+You+know,+Mikey?+If+you+kill+people+..;That+makes+you+a+bad+Guy..;But+If+You+Kill+The+enemies..;That+Makes+You+A+Hero.")](https://git.io/typing-svg)         
+        
+<img src="https://github.com/user-attachments/assets/1041673f-6ef0-45d9-9e81-8670b660db16" alt="imgkaz" width="80%"/>
       </td>
       <td align="center" valign="middle" width="10%">
         <a 
@@ -20,7 +23,8 @@
         <a 
 href="https://pronouns.cc/xbri."><img src="https://github.com/user-attachments/assets/3e10632b-d835-4d4a-b4cc-a560307e5114" alt="Pronouns.Cc"/></a>
         <br/><br/>
-        <a href="https://rentry.co/centopia"><img src="https://github.com/user-attachments/assets/c7e8e79f-ea6a-42fb-8a88-69b307b7654b" alt="Rentry"/></a>          
+        <a href="https://rentry.co/centopia"><img src="https://github.com/user-attachments/assets/c7e8e79f-ea6a-42fb-8a88-69b307b7654b" alt="Rentry"/></a>  
+
 
 ![](https://komarev.com/ghpvc/?username=bloodbatheds&color=B09E71&label=rebels)
 <br/><br/>
