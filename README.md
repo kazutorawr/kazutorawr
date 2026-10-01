@@ -15,7 +15,7 @@
 
 ${\textsf{\color{#B09E71}𝓚𝓪𝔃𝓾𝓽𝓸𝓻𝓪}}$‎ 
 ${\textsf{\color{#703E5B}+}}$‎ ${\textsf{\color{#B09E71}𝓘𝔃𝓪𝓷𝓪}}$‎ 
-${\textsf{\color{#BCB880}𝔜𝓾𝓶𝓮𝓴𝓲𝓷}}$
+${\textsf{\color{#BCB880}𝓨𝓾𝓶𝓮 𝓝𝓸𝓷𝓼𝓱𝓪𝓻𝓲𝓷𝓰}}$
 
 
 ${\textsf{\color{#703E5B}﹌﹌﹌﹌﹌﹌﹌﹌}}$‎
