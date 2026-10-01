@@ -1,4 +1,4 @@
-‎
+
 <p  align="center">
 <img width="500px" src="https://github.com/user-attachments/assets/9e16e828-7304-4337-af02-57b0f8a1b62d" /> </p>
 <table align="center">
@@ -13,12 +13,14 @@
 
 <img width="89" height="90" alt="10361" src="https://github.com/user-attachments/assets/8af632d3-b99d-43cd-ad57-c74d2bfc9a3f" />
 
-${\textsf{\color{#B09E71}𝓚𝓪𝔃𝓾𝓽𝓸𝓻𝓪}}$‎ ${\textsf{\color{#BCB880}𝔜𝓾𝓶𝓮𝓴𝓲𝓷}}$
+${\textsf{\color{#B09E71}𝓚𝓪𝔃𝓾𝓽𝓸𝓻𝓪}}$‎ 
+${\textsf{\color{#B09E71}𝓘𝔃𝓪𝓷𝓪}}$‎ 
+${\textsf{\color{#BCB880}𝔜𝓾𝓶𝓮𝓴𝓲𝓷}}$
 
 
 ${\textsf{\color{#703E5B}﹌﹌﹌﹌﹌﹌﹌﹌}}$‎
 
-${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf{\color{#A78E68}𓏼 𝔜𝓾𝓶𝓮}}$
+${\textsf{\color{#A24462}𝔙𝔬𝔦𝔡𝔰𝔥𝔞𝔯𝔦𝔫𝔤}}$‎‎ ${\textsf{\color{#A78E68}𓏼 𝔜𝓾𝓶𝓮}}$
      <br>
  ‎  ‎ ‎  ‎   ‎ <details>
   <summary> ⠀  ${\textsf{\color{#703E5B}𝔇𝔢𝔞𝔯𝔢𝔰𝔱𝔰}}$ </summary> 
