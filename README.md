@@ -1,3 +1,4 @@
+I'm A BIG Tokyo Revengers Fan So Interact Me If You Are Too I LOVE Meeting People With Same Fandoms As Mine.
 
 <p align="center">
 
@@ -38,3 +39,5 @@ With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk 
 
 </details>
 <br>
+This Is So Funny What The Heck
+<img width="640" height="457" alt="14079" src="https://github.com/user-attachments/assets/4206d00e-29f5-482c-98fd-44174e20752f" />
