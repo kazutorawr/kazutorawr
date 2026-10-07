@@ -1,44 +1,31 @@
 
-<p  align="center">
-<img width="500px" src="https://github.com/user-attachments/assets/9e16e828-7304-4337-af02-57b0f8a1b62d" /> </p>
-<table align="center">
-  <tr>
-    <td rowspan="2" align="center">
-      <img src="https://file.garden/ahJ9psks00S0XEb8/Untitled204_20260830151832.png" width="120">
-    </td>
-    <td>
+<p align="center">
 
-    
-![](https://komarev.com/ghpvc/?username=bloodbatheds&color=B09E71&label=rebels)
+I Saw, I Came, I Conqueered
 
-<img width="89" height="90" alt="10361" src="https://github.com/user-attachments/assets/8af632d3-b99d-43cd-ad57-c74d2bfc9a3f" />
+  ![](https://komarev.com/ghpvc/?username=bloodbatheds&color=B09E71&label=rebels)
 
-${\textsf{\color{#B09E71}𝓚𝓪𝔃𝓾𝓽𝓸𝓻𝓪}}$‎ 
-${\textsf{\color{#703E5B}+}}$‎ ${\textsf{\color{#B09E71}𝓘𝔃𝓪𝓷𝓪}}$‎ 
-${\textsf{\color{#BCB880}𝔜𝓾𝓶𝓮𝓴𝓲𝓷 𝓝𝓸𝓷𝓼𝓱𝓪𝓻𝓲𝓷𝓰}}$
-
-
-${\textsf{\color{#703E5B}﹌﹌﹌﹌﹌﹌﹌﹌}}$‎
-
-${\textsf{\color{#A24462}𝔙𝔬𝔦𝔡𝔰𝔥𝔞𝔯𝔦𝔫𝔤}}$‎‎ ${\textsf{\color{#A78E68}𓏼 𝔜𝓾𝓶𝓮}}$
-     <br>
- ‎  ‎ ‎  ‎   ‎ <details>
-  <summary> ⠀  ${\textsf{\color{#703E5B}𝔇𝔢𝔞𝔯𝔢𝔰𝔱𝔰}}$ </summary> 
+  <img width="736" height="736" alt="14057" src="https://github.com/user-attachments/assets/a02c3ec3-defc-4b22-b798-3d0c7736f9f5" />
   
-  [𝔖𝔞𝔪𝔲𝔢𝔩](https://github.com/nnagito) [𝔇𝔬𝔯𝔦𝔞𝔫](https://github.com/lierzxkichi)
-  [𝔎𝔢𝔪](https://github.com/k3m-kem) 
+
+</details>
+<details>
+  <summary> ⠀  Hello Bakas </summary> 
+  
+  [Samuel](https://github.com/nnagito)  [Dorian](https://github.com/lierzxkichi)
+  [Kem](https://github.com/k3m-kem)
+
+</details>
+<details>
+  <summary> ⠀  Links </summary> 
+  
+  [Ata](https://bloodbathed.atabook.org)  [Info](https://rentry.co/centopia)
+  [Pronouns.cc](https://pronouns.cc/@xbri.)
+  [Strawpage](https://kazutorawr.straw.page.)
   
 </details>
 <details>
-  <summary> ⠀  ${\textsf{\color{#BCB880}𝔈𝔵𝔱𝔢𝔫𝔡𝔢𝔡}}$ </summary> 
-  
-  [𝔄𝓽𝓪](https://bloodbathed.atabook.org)  [𝕴𝔫𝔣𝔬](https://rentry.co/centopia)
-  [𝕻𝔯𝔫𝔠𝔰.𝕮𝔠](https://pronouns.cc/@xbri.)
-  [𝕾𝓉𝓇𝒶𝓌𝓅𝒶ℊℯ](https://kazutorawr.straw.page.)
-  
-</details>
-<details>
-  <summary> ⠀  ${\textsf{\color{#BCB880}𝕻𝕿 𝕽𝖊𝖜𝖆𝖗𝖉𝖘}}$ </summary> 
+  <summary> ⠀  Rewards </summary> 
   
 [1](https://github.com/pt-icon)
 [2](https://github.com/Ponytowns-rewards)
@@ -48,10 +35,3 @@ ${\textsf{\color{#A24462}𝔙𝔬𝔦𝔡𝔰𝔥𝔞𝔯𝔦𝔫𝔤}}$‎‎ $
 
 </details>
 <br>
-
-</td>
-</tr>
-</table>
-</p>
-  <p  align="center">
- <img  width="550px" src="https://file.garden/ahJ9psks00S0XEb8/Untitled203_20260830151630.png" />
