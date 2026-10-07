@@ -1,7 +1,7 @@
 
 <p align="center">
 
-I Saw, I Came, I Conqueered
+I Saw, I Came, I Con**queer**ed
 Hello My Name Is Anon And I Yumeship With
 With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk To Me If You're A Double So We Can Both Have PEACE Ok. 
 
