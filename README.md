@@ -43,7 +43,7 @@ With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk 
 <details>
   <summary> ⠀  Links </summary> 
   
-  [Ata](https://bloodbathed.atabook.org)  [Info](https://rentry.co/centopia)
+  [Ata](https://kazutorawr.atabook.org/)  [Info](https://rentry.co/centopia)
   [Pronouns.cc](https://pronouns.cc/@xbri.)
   [Strawpage](https://kazutorawr.straw.page.)
   
