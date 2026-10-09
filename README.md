@@ -12,6 +12,26 @@ With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk 
 
   Check Out My Cool Links I Had To Change My ReadMe Since People Stealin' Shit Wow
 
+
+
+<div align="center">
+  <details>
+    <summary>Click For More</summary>
+<table>
+<tr>
+
+<p align="center">
+  
+</p>
+
+<td width="50%" align="center" valign="top">
+      
+  <sub>Special Mentions</sub>
+  <sub><sub>: Samuel, Dorian, Kem, Bon, Mal, Ren</sub></sub>
+
+  <sub>Other Oomfs That Are Sillies</sub>
+  <sub><sub>: Jia, Meii, Specter, Kiel, Ak, Aiko, Sky, Rae, Calx, Rei, Ken</sub></sub>
+
 </details>
 <details>
   <summary> ⠀  Hello Bakas </summary> 
@@ -62,4 +82,7 @@ Good Morning World And My Cute Betta (Alpha) Fishes
 <img width="392" height="436" alt="10348" src="https://github.com/user-attachments/assets/bec752c1-826f-407f-b78a-2207211386ba" />
 <img width="615" height="1000" alt="10941" src="https://github.com/user-attachments/assets/494139de-1eaf-4994-a07c-03f96ba4ef2f" />
 
+
+‎
+<p align="center">
 
