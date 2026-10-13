@@ -2,10 +2,8 @@ I'm A BIG Tokyo Revengers Fan So Interact Me If You Are Too I LOVE Meeting Peopl
 
 <p align="center">
 
-I Saw, I Came, I Con**queer**ed
 Hello My Name Is Anon And I Yumeship With
 With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk To Me If You're A Double So We Can Both Have PEACE Ok. 
-
   ![](https://komarev.com/ghpvc/?username=bloodbatheds&color=212121&label=Tenjiku)
 
   <img width="736" height="736" alt="14057" src="https://github.com/user-attachments/assets/a02c3ec3-defc-4b22-b798-3d0c7736f9f5" />
