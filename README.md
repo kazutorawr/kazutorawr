@@ -3,7 +3,8 @@ I'm A BIG Tokyo Revengers Fan So Interact Me If You Are Too I LOVE Meeting Peopl
 <p align="center">
 
 Hello My Name Is Anon And I Yumeship With
-With Izana And Kazutora Hello I'm A Voidyume Kindly And Respectfully Don't Talk To Me If You're A Double So We Can Both Have PEACE Ok. 
+With Izana, Kazutora (Barely) And Mitsuya Hello I'm A Voidyume Towards Some It Might BR On My Straw Surely I'll Update It Soon I'm Just Sadly Losing My Motivation Nowdays Trust Me I'm Kind Just Kindly And Respectfully Don't Talk To Me If You're A Double So We Can Both Have PEACE Okay Because I Feel Uncomfortable Around Doubles Except If The Characther I F/O With Is HyperSharing. 
+
   ![](https://komarev.com/ghpvc/?username=bloodbatheds&color=212121&label=Tenjiku)
 
   <img width="736" height="736" alt="14057" src="https://github.com/user-attachments/assets/a02c3ec3-defc-4b22-b798-3d0c7736f9f5" />
