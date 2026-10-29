@@ -10,6 +10,8 @@ I don't really care if you take inspo on my skins, just not that badly! Plus, do
 
 PS: I'm a voidyume and selective towards my F/O'S, I don't harm doubles, but I will be distand and I'll keep myself away from them if they ever try to talk, I do this to avoid any problems and issues.
 
+I also have uncontrollable outburts and I have anger issues! But don't worry, I'm safe to interact unless if my name has DNIUCF! My choices of interest is something people shouldn't know if they're sensitive towards my topics.
+
 If ever you're on my DNI and yet so you interact with me, I'll consider it as an single interaction only, if I ever find out you're on my DNI List, you'll be blocked temporarily or to permanent. I also block freely but to who has already blocked me before I do, I can still see you all, somewhere!
 
 I'm on a break, but feel free to text me on my DMS, or through via ATAbook. I don't care if you either threath or harass me in my atabook, the chats will just get deleted anyways!
